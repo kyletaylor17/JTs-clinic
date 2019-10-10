@@ -8,5 +8,3 @@ pt 4 stuff for free
 =======
 free stuff pt4
 
-JT send us that code
-Still waiting on that code
